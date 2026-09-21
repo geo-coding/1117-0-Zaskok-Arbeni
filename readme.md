@@ -134,6 +134,7 @@ Ferizaj
 242/2026
 279/1172-140/26
 01231-0
+LLUGI I VARVARËS
 Latife (Ramadan) Mahalla
 1500018620
 Zaskok
